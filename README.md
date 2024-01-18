@@ -23,3 +23,10 @@ Multisoiledaufspoil
 Alienbezuglichoutworld  
 Predestinabarrier  
 Malmessageurfault  
+Historiano
+Tightencrippenstadt
+Theatrikclikbait
+Corporamoataktik
+Mercitorterrecht
+Infospudramatik
+Mobbichainbrekker
