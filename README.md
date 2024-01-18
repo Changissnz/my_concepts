@@ -29,5 +29,5 @@ Theatrikclikbait
 Corporamoataktik  
 Mercitorterrecht  
 Infospudramatik  
-Mobbichainbrekker  
+Mobbichainbrekker   
 Ankorschwartzenkonstantnein
