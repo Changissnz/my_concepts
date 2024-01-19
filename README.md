@@ -30,5 +30,5 @@ Corporamoataktik
 Mercitorterrecht  
 Infospudramatik  
 Mobbichainbrekker   
-Ankorschwartzenkonstantnein
+Ankorschwartzenkonstantnein  
 Prufensubjekschforge
